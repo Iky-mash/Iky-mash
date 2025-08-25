@@ -4,7 +4,7 @@
 
 - 👨‍💻 You can also check out my portfolio at (https://github.com/Iky-mash/)
 
-- 📫 How to reach me *hadielfaro74@gmail.com*
+- 📫 How to reach me *subkhimash@gmail.com*
 
 - ⚡ Fun fact *I think I am funny XD*
 
